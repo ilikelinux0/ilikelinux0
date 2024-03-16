@@ -8,5 +8,5 @@ I believe that to be able to break things better you gotta know how to make and 
  >   <
    w
 
-holy that cat looks nice. 
+damn the cat looked better inside the edit. -_-
  
